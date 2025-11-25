@@ -25,7 +25,7 @@ Hemp gummies are often made with full-spectrum hemp extract, meaning they includ
 Both deliver powerful wellness support. The choice usually comes down to personal preference and sensitivity to THC.
 The Rise of Delta 9 Gummies: Legal THC in Every Bite
 Delta 9 gummies have become one of the hottest trends in 2025, and they are completely legal under the 2018 Farm Bill when derived from hemp and containing less than 0.3% delta 9 THC by dry weight.
-These delta 9 gummies provide the classic cannabis experience many remember, but in controlled, consistent doses. Users report:
+These <a href="https://wholesalehempfarms.com/products/thc-hemp-delta-9-gummy" title="Top 10 CBD Gummies for Anxiety & Sleep (2025 Review)" aria-label="Read the full 2025 review of the best CBD gummies">delta 9 gummies</a> provide the classic cannabis experience many remember, but in controlled, consistent doses. Users report:
 
 Elevated mood and creativity
 Deep body relaxation
